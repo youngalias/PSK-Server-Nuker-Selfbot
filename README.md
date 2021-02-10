@@ -1,4 +1,4 @@
-# 6ix Nuker
+# PSK Nuker
  ![Screenshot](screenshot.png)
 # SKIDS
     Any nigga with lie in his name ->  https://github.com/Pixxth/Lie-selfbot-Leaked-by-pix
