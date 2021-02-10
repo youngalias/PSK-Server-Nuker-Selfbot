@@ -13,7 +13,7 @@
 
 
 # INFO
-ask me for more details on it cord: 2₆ᵢₓ#2222
+ask me for more details on it cord: kyz#7701
 
 
 
